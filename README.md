@@ -12,6 +12,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+🔴🟡🟢
+
 # Grandior coniurataeque aetas veste saxa volucrem
 
 Albis fugam aera mira omnia Cipus sui sospite, denique nec at tot aevum
