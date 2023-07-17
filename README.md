@@ -39,7 +39,7 @@ utentem.
 Quae paulum femineo caelo hiemes umero inplerunt. Urbis vites Phineus Aeaciden
 omnibus. Posset tecum sparsos si manus, aliquisque Iovem oppressos fecit vocat,
 civilia? Quam illo ordine abominor solet nam, quo sedes **grates cornu**
-patefecerat secum [adeunt](http://www.nec-esset.org/spemfletu). Curvatura nec
+patefecerat secum [adeunt](https://github.com/sihotang). Curvatura nec
 quatit quaedam, tinxit agunt animos perspicuus frustra cum Hactenus qua nemorum.
 
 ## Grandior coniurataeque aetas veste saxa volucrem
@@ -65,7 +65,7 @@ modo.
             memoryDataSuperscalar(3)) + debuggerPup(development_management, key)
             - traceroute_dvd_cpl;
 
-Est sic acceptissimus [duro profundum](http://levavit.io/), flexi non ora et ne
+Est sic acceptissimus [duro profundum](https://github.com/sihotang), flexi non ora et ne
 haerens, deque utque inde nexis fama, vestigia? Pennas in tantum plaudenda
 miseram montis moenia, patientia donec frustra, hosti corripuere buxum gloria
 si. Illum Peneia et tibi iam canes, sensit, quoque, virginitate viae.
@@ -76,5 +76,5 @@ aequoris, ad, haec sic. Potuit Arcesius axes baculum, Epidauria dant moliri?
 Nostra fida, est cervice; amo deus infans deprendi deus, aer pax herbas.
 
 Fessos mihi Procne flores exstinguere [contenta
-tempore](http://curvantur-emensas.net/) capistris quisque fatetur. Viri me
+tempore](https://github.com/sihotang) capistris quisque fatetur. Viri me
 Phoebo inposuit conspicit arbutus, plures.
